@@ -1,0 +1,6 @@
+- 👋 hola me llamo @dominicgabrielluna.
+- 👀 estoy interesado en programacion html javascript css.
+- 🌱 Actualmente estoy aprendiendo programacion css javascript.
+- 💞️ Busco colaborar en programacion.
+- 📫 Cómo contactarme en gmail este esl mio domi137264@gmail.com
+- 😄 Pronombres: domi, dominic.
